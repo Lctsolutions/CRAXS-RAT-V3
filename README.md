@@ -144,8 +144,10 @@ Skeleton view or Scan View
 - ✅ Bypass black screen of banks and crypto app
 - ✅Add logo window to copy anything from screen easy
 
-
+# Screenshot
 
 ![App Screenshot](2.png)
 
 ![App Screenshot](3.png)
+
+![App Screenshot](4.png)
