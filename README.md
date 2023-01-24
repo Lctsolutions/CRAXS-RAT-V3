@@ -151,3 +151,7 @@ Skeleton view or Scan View
 ![App Screenshot](3.png)
 
 ![App Screenshot](4.png)
+
+![App Screenshot](5.png)
+
+![App Screenshot](6.png)
