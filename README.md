@@ -5,7 +5,6 @@
 
 🔥CRAXSRAT-LIFETIME🔥
 
-## WhatsApp +1 (587) 858-5751
 ## Teligram (DEMO VIDEO)
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/+d7B9nU-M9KJiNzIx)
 
